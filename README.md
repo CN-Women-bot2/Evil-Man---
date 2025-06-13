@@ -26,6 +26,8 @@
 
 [2018年泰国杀妻骗保案](https://zh.wikipedia.org/wiki/2018%E5%B9%B4%E6%B3%B0%E5%9B%BD%E6%9D%80%E5%A6%BB%E9%AA%97%E4%BF%9D%E6%A1%88)
 
+[新街口伤人事件：男子开车两次碾压前妻](https://www.163.com/dy/article/J9KGCS3T0543MU70.html)
+
 ## 刑事案件/拐卖
 
 [“铁链女”事件远未终结：噤声、镇压和秘密反抗](https://cn.nytimes.com/china/20250307/xuzhou-china-chained-woman-incident-activists/)
