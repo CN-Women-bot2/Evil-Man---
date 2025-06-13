@@ -40,6 +40,8 @@
 ## 刑事案件/其他事件
 [邯郸初中生杀人案](https://zh.wikipedia.org/wiki/%E9%82%AF%E9%83%B8%E5%88%9D%E4%B8%AD%E7%94%9F%E6%9D%80%E4%BA%BA%E6%A1%88)
 
+[广东一高校男生朝三女生泼硫酸](https://news.ifeng.com/c/82ZjCqm3PfI)
+
 ## 社会事件+社会不公是因为我不是公的哈哈
 
 [同人文海棠女作家被判十年](https://www.bbc.com/zhongwen/articles/c2e32x7lx01o/simp) 很可惜海棠事件没能找到写的好的新闻报道，写同人的太太起码99%都是女的,但报道里是只字不提。
