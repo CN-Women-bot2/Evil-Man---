@@ -28,6 +28,8 @@
 
 [新街口伤人事件：男子开车两次碾压前妻](https://www.163.com/dy/article/J9KGCS3T0543MU70.html)
 
+[顺义男子勒死妻子后伪造现场捏造夫妻共同自杀以脱罪被判无期](https://finance.sina.com.cn/jjxw/2025-06-14/doc-inezyzhs3464400.shtml)
+
 ## 刑事案件/拐卖
 
 [“铁链女”事件远未终结：噤声、镇压和秘密反抗](https://cn.nytimes.com/china/20250307/xuzhou-china-chained-woman-incident-activists/)
@@ -42,7 +44,7 @@
 
 [广东一高校男生朝三女生泼硫酸](https://news.ifeng.com/c/82ZjCqm3PfI)
 
-## 社会事件+社会不公是因为我不是公的哈哈
+## 社会事件+社会不公是因为我不是公的
 
 [同人文海棠女作家被判十年](https://www.bbc.com/zhongwen/articles/c2e32x7lx01o/simp) 很可惜海棠事件没能找到写的好的新闻报道，写同人的太太起码99%都是女的,但报道里是只字不提。
 * 都是读书上学的女孩子哪知道违法不违法的，她们从小被老师教读贾平凹、王小波，她们只是以为这是可以写的，她们以为这是文学啊，她们看到随便一个网站打开都有黄色广告、黄色视频，她们以为这是被允许的啊，不然怎么会没人抓呢？
