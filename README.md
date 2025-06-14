@@ -30,6 +30,11 @@
 
 [顺义男子勒死妻子后伪造现场捏造夫妻共同自杀以脱罪被判无期](https://finance.sina.com.cn/jjxw/2025-06-14/doc-inezyzhs3464400.shtml)
 
+[“男子割喉杀妻案”宣判：被告判处死缓 女方有孕时家暴](https://news.cctv.com/2024/04/19/ARTIsj7xQfNRc1sPeAqQBXJO240419.shtml)
+
+[女子长期被丈夫家暴，曾至一眼失明，在丈夫威胁要杀全家之后将丈夫反杀，被判故意杀人罪获刑五年(安瑞花案)](https://news.sina.cn/sa/2005-03-07/detail-ikknscsi5985585.d.html)
+* 证人刘增刚、邱瑞珍证实刘增军生前长期打骂妻子、儿女及他人，曾致安瑞花一眼失明，身上多处受处；诊断证明证实安瑞花右眼光感，身上多处疤痕；被告人安瑞花对杀死刘增军的事实予以供认。根据以上证据，足以证实被告人安瑞花将其丈夫刘增军杀死的事实。
+
 ## 刑事案件/拐卖
 
 [“铁链女”事件远未终结：噤声、镇压和秘密反抗](https://cn.nytimes.com/china/20250307/xuzhou-china-chained-woman-incident-activists/)
