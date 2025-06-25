@@ -60,6 +60,8 @@
 
 [广东一高校男生朝三女生泼硫酸](https://news.ifeng.com/c/82ZjCqm3PfI)
 
+[英国留学生邹振豪迷奸案](https://www.bbc.com/news/articles/c4g8dy38qxjo)
+
 ## 社会事件+社会不公是因为我不是公的
 
 [同人文海棠女作家被判十年](https://www.bbc.com/zhongwen/articles/c2e32x7lx01o/simp) 很可惜海棠事件没能找到写的好的新闻报道，写同人的太太起码99%都是女的,但报道里是只字不提。
