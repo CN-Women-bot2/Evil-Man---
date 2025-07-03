@@ -32,6 +32,8 @@
 
 [“男子割喉杀妻案”宣判：被告判处死缓 女方有孕时家暴](https://news.cctv.com/2024/04/19/ARTIsj7xQfNRc1sPeAqQBXJO240419.shtml)
 
+[广东60岁男子杀害女友案](https://www.163.com/news/article/JTLU7J8U0001899O.html)
+
 ## 刑事案件/拐卖
 
 [“铁链女”事件远未终结：噤声、镇压和秘密反抗](https://cn.nytimes.com/china/20250307/xuzhou-china-chained-woman-incident-activists/)
