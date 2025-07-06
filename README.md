@@ -43,10 +43,7 @@
 ## 刑事案件/受害者为0-17岁女童
 [6个月女童被父亲扔出窗外死亡，父亲被判四年](https://www.163.com/dy/article/JITNNLM60529MOU2.html)
 
-## 刑事案件/其他事件
-[邯郸初中生杀人案](https://zh.wikipedia.org/wiki/%E9%82%AF%E9%83%B8%E5%88%9D%E4%B8%AD%E7%94%9F%E6%9D%80%E4%BA%BA%E6%A1%88)
-
-[广东一高校男生朝三女生泼硫酸](https://news.ifeng.com/c/82ZjCqm3PfI)
+## 刑事案件/性犯罪
 
 [英国留学生邹振豪迷奸案](https://www.bbc.com/news/articles/c4g8dy38qxjo)
 
@@ -55,6 +52,11 @@
 [赵富强案(上海小红楼案)](https://zh.wikipedia.org/wiki/%E8%B6%99%E5%AF%8C%E5%BC%B7%E6%A1%88)
 
 [山西一男子入室强奸并残忍杀害88岁老妇（刘永奇案）](https://hk.news.yahoo.com/%E5%85%A5%E5%B1%8B%E5%A7%A68%E6%97%AC%E5%A9%A6%E5%BE%92%E6%89%8B%E6%92%95%E6%89%AF%E5%99%A8%E5%AE%98%E8%87%B4%E6%AD%BB-%E7%94%B7%E5%AD%90%E4%BC%8F%E6%B3%95-030034256.html)
+
+## 刑事案件/其他事件
+[邯郸初中生杀人案](https://zh.wikipedia.org/wiki/%E9%82%AF%E9%83%B8%E5%88%9D%E4%B8%AD%E7%94%9F%E6%9D%80%E4%BA%BA%E6%A1%88)
+
+[广东一高校男生朝三女生泼硫酸](https://news.ifeng.com/c/82ZjCqm3PfI)
 
 ## 刑事案件/女子被长期家暴后反杀
 
@@ -79,3 +81,5 @@
 [西安地铁拖拽事件一周后，被置之不理的舆论讨论](https://www.bbc.com/zhongwen/topics/ckr7mn6r003t/simp)
 
 [上海一高校男生半夜喝醉酒闯进女生宿舍，还疯狂用脚踹门](https://www.sohu.com/a/835963682_121124526)
+
+[清华大学张植瑞尾随华北电大女生入校偷拍大量厕所盗摄视频](https://www.163.com/dy/article/JQPIJGU80519V743.html)
