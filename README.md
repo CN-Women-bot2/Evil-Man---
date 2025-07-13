@@ -12,9 +12,9 @@
 
 [陸男鋼尺＋皮帶毆妻/面条水煮妻案](https://tw.news.yahoo.com/%E5%85%87%E6%AE%98-%E9%99%B8%E7%94%B7%E9%8B%BC%E5%B0%BA-%E7%9A%AE%E5%B8%B6%E6%AF%86%E5%A6%BB-%E5%86%8D%E7%94%A8-%E9%AB%98%E6%BA%AB%E7%85%AE%E9%BA%B5%E6%B0%B4-033334564.html)
 
-[杭州杀妻碎尸案](https://zh.wikipedia.org/wiki/%E8%AE%B8%E5%9B%BD%E5%88%A9%E6%9D%80%E5%A6%BB%E6%A1%88)
+[杭州男子许国利杀妻碎尸案](https://zh.wikipedia.org/wiki/%E8%AE%B8%E5%9B%BD%E5%88%A9%E6%9D%80%E5%A6%BB%E6%A1%88)
 
-[谷歌工程师杀妻案](https://m.thepaper.cn/kuaibao_detail.jsp?contid=26273755&from=kuaibao)
+[谷歌工程师陈立人杀妻案](https://m.thepaper.cn/kuaibao_detail.jsp?contid=26273755&from=kuaibao)
 
 [拉姆之死：中国藏族网红直播时遭前夫纵火身亡引爆反家暴讨论](https://www.bbc.com/zhongwen/simp/chinese-news-54384798)
 
