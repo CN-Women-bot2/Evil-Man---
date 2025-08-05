@@ -53,6 +53,8 @@
 
 [山西一男子入室强奸并残忍杀害88岁老妇（刘永奇案）](https://hk.news.yahoo.com/%E5%85%A5%E5%B1%8B%E5%A7%A68%E6%97%AC%E5%A9%A6%E5%BE%92%E6%89%8B%E6%92%95%E6%89%AF%E5%99%A8%E5%AE%98%E8%87%B4%E6%AD%BB-%E7%94%B7%E5%AD%90%E4%BC%8F%E6%B3%95-030034256.html)
 
+[甘肃内蒙古“8·05”系列强奸杀人残害女性案](https://zh.wikipedia.org/wiki/%E7%99%BD%E9%93%B6%E5%B8%82%E8%BF%9E%E7%8E%AF%E6%9D%80%E4%BA%BA%E6%A1%88)
+
 ## 刑事案件/其他事件
 [邯郸初中生杀人案](https://zh.wikipedia.org/wiki/%E9%82%AF%E9%83%B8%E5%88%9D%E4%B8%AD%E7%94%9F%E6%9D%80%E4%BA%BA%E6%A1%88)
 
@@ -73,6 +75,11 @@
 
 ## 社会事件-社会不公是因为我不是公的
 
+[MaskPark:境外加密群组疯传内地女性私照](https://www.reuters.com/business/media-telecom/outrage-china-after-reports-exploitative-images-chinese-women-shared-telegram-2025-07-29/)
+* “一个通过Telegram等即时通讯平台运营的散播色情视频和偷拍照片的群组，该群组还管理20余个子群组，其成员规模超过10万人。事件于2025年7月被曝光后，被网民称为中国版的N号房事件。该群组传播未经同意偷拍的私密影像，内容包括在不同公共场所（如地铁、商场、教室）以及私密空间（家中、试衣间、卫生间，甚至b超）等偷拍陌生女性、散布女友或前女友隐私照片，甚至有成员分享性侵影像。该群组还存在偷拍器材（如针孔摄像头等）买卖与安装教学。”
+* “甚至在他们的罪行被揭露之后，他们的气焰依然极其嚣张，威胁要对曝光他们的女网友进行“开盒””
+* [404文库](https://chinadigitaltimes.net/chinese/719983.html)
+
 [港大一男生制作超700张AI色情照 涉20多名女性含老师同学 处罚仅是道歉](https://finance.sina.com.cn/jjxw/2025-07-13/doc-inffikpp7566089.shtml)
 
 [同人文海棠女作家被判十年](https://www.bbc.com/zhongwen/articles/c2e32x7lx01o/simp) 很可惜海棠事件没能找到写的好的新闻报道，写同人的太太起码99%都是女的,但报道里是只字不提。
@@ -89,3 +96,6 @@
 [上海一高校男生半夜喝醉酒闯进女生宿舍，还疯狂用脚踹门](https://www.sohu.com/a/835963682_121124526)
 
 [清华大学张植瑞尾随华北电大女生入校偷拍大量厕所盗摄视频](https://www.163.com/dy/article/JQPIJGU80519V743.html)
+
+[武汉大学图书馆肖明瑫性骚扰事件](https://zh.wikipedia.org/wiki/%E6%AD%A6%E6%B1%89%E5%A4%A7%E5%AD%A6%E5%9B%BE%E4%B9%A6%E9%A6%86%E4%BA%89%E8%AE%AE%E4%BA%8B%E4%BB%B6)
+* 武汉肖明瑫当着一女性面撸管事后几个月说他有湿疹在挠痒痒
