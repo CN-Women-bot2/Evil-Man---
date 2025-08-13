@@ -60,6 +60,8 @@
 
 [广东一高校男生朝三女生泼硫酸](https://news.ifeng.com/c/82ZjCqm3PfI)
 
+[江西南昌一男子因搭讪被拒绝而捅死女大学生](https://m.163.com/dy/article/K6Q3BFTL05566ZGJ.html?clickfrom=subscribe)
+
 ## 刑事案件/女子被长期家暴后反杀
 
 [被家暴女子驾车逃跑致丈夫身亡，判刑11年让人意难平](https://www.sohu.com/a/888445763_121899824)
