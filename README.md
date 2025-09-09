@@ -34,6 +34,11 @@
 
 [广东60岁男子杀害女友案](https://www.163.com/news/article/JTLU7J8U0001899O.html)
 
+[黑龙江43岁张某铭殴打张姓前妻，致其肠破裂、混合型休克](https://www.163.com/dy/article/K91QHPE80521IO1G.html)
+
+[河北沧州金昊杀妻案](https://www.163.com/dy/article/K7TKFLA90551M612.html)
+* "凶手冷血残忍暴虐致死暴力：法医鉴定显示，25岁的刘某某因钝性外力致颅脑损伤死亡，身体多处存在新旧伤痕（包括腰椎断裂、颈椎断裂、肋骨骨折扎入肺部等），指甲中残留墙面白灰，墙上发现抓痕，显示生前曾激烈挣扎。刘某因重伤无法求救，在客厅痛苦死亡。金昊施暴后回房睡觉，直至次日清晨父母才将尸体送医。"
+
 ## 刑事案件/拐卖
 
 [“铁链女”事件远未终结：噤声、镇压和秘密反抗](https://cn.nytimes.com/china/20250307/xuzhou-china-chained-woman-incident-activists/)
@@ -54,6 +59,8 @@
 [山西一男子入室强奸并残忍杀害88岁老妇（刘永奇案）](https://hk.news.yahoo.com/%E5%85%A5%E5%B1%8B%E5%A7%A68%E6%97%AC%E5%A9%A6%E5%BE%92%E6%89%8B%E6%92%95%E6%89%AF%E5%99%A8%E5%AE%98%E8%87%B4%E6%AD%BB-%E7%94%B7%E5%AD%90%E4%BC%8F%E6%B3%95-030034256.html)
 
 [甘肃内蒙古“8·05”系列强奸杀人残害女性案](https://zh.wikipedia.org/wiki/%E7%99%BD%E9%93%B6%E5%B8%82%E8%BF%9E%E7%8E%AF%E6%9D%80%E4%BA%BA%E6%A1%88)
+
+[41岁男子求爱未果，捅刺女子数刀并朝其面部泼硫酸](https://news.qq.com/rain/a/20250909A02YX000)
 
 ## 刑事案件/其他事件
 [邯郸初中生杀人案](https://zh.wikipedia.org/wiki/%E9%82%AF%E9%83%B8%E5%88%9D%E4%B8%AD%E7%94%9F%E6%9D%80%E4%BA%BA%E6%A1%88)
@@ -101,3 +108,5 @@
 
 [武汉大学图书馆肖明瑫性骚扰事件](https://zh.wikipedia.org/wiki/%E6%AD%A6%E6%B1%89%E5%A4%A7%E5%AD%A6%E5%9B%BE%E4%B9%A6%E9%A6%86%E4%BA%89%E8%AE%AE%E4%BA%8B%E4%BB%B6)
 * 武汉肖明瑫当着一女性面撸管事后几个月说他有湿疹在挠痒痒
+
+[青岛代孕机构](https://www.zaobao.com.sg/realtime/china/story20240827-4550403)
