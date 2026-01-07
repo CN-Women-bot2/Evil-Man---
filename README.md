@@ -39,6 +39,18 @@
 [河北沧州金昊杀妻案](https://www.163.com/dy/article/K7TKFLA90551M612.html)
 * "凶手冷血残忍暴虐致死暴力：法医鉴定显示，25岁的刘某某因钝性外力致颅脑损伤死亡，身体多处存在新旧伤痕（包括腰椎断裂、颈椎断裂、肋骨骨折扎入肺部等），指甲中残留墙面白灰，墙上发现抓痕，显示生前曾激烈挣扎。刘某因重伤无法求救，在客厅痛苦死亡。金昊施暴后回房睡觉，直至次日清晨父母才将尸体送医。"
 
+[2019泰国杀妻坠崖案](https://zh.wikipedia.org/wiki/2019%E5%B9%B4%E5%AD%95%E5%A6%87%E6%B3%B0%E5%9B%BD%E5%9D%A0%E5%B4%96%E6%A1%88)
+
+[湖南平江陈某明家暴案](https://news.cnr.cn/rebang/20251206/t20251206_527451418.shtml)
+
+[男子两次策划车祸杀妻骗保](https://news.stcn.com/sd/202108/t20210823_3578547.html)
+
+[男子驾车碾压拖拽妻子8.5米致死案](https://news.qq.com/rain/a/20251213A04HLT00)
+
+[男子新婚两月杀死妻子 将尸体照片发朋友圈](http://politics.people.com.cn/n/2014/1118/c1001-26043893.html)
+
+[26岁女子欲离婚，丈夫杨某东开车撞击、捅杀136刀致其死亡](https://www.guancha.cn/politics/2025_08_23_787563.shtml)
+
 ## 刑事案件/拐卖
 
 [“铁链女”事件远未终结：噤声、镇压和秘密反抗](https://cn.nytimes.com/china/20250307/xuzhou-china-chained-woman-incident-activists/)
@@ -47,6 +59,10 @@
 
 ## 刑事案件/受害者为0-17岁女童
 [6个月女童被父亲扔出窗外死亡，父亲被判四年](https://www.163.com/dy/article/JITNNLM60529MOU2.html)
+
+[陕西一丈夫多次强奸8岁亲生女儿](https://www.thepaper.cn/newsDetail_forward_8294445)
+
+[石家庄一男子4年强奸继女六七十次](https://www.sohu.com/a/968807769_121942727)
 
 ## 刑事案件/性犯罪
 
@@ -61,6 +77,20 @@
 [甘肃内蒙古“8·05”系列强奸杀人残害女性案](https://zh.wikipedia.org/wiki/%E7%99%BD%E9%93%B6%E5%B8%82%E8%BF%9E%E7%8E%AF%E6%9D%80%E4%BA%BA%E6%A1%88)
 
 [41岁男子求爱未果，捅刺女子数刀并朝其面部泼硫酸](https://news.qq.com/rain/a/20250909A02YX000)
+
+[广东上司迷奸女孩致死](https://finance.sina.com.cn/jjxw/2021-12-05/doc-ikyakumx2192825.shtml)
+
+[百色市祈福高中男老师猥亵强奸学生](https://www.reddit.com/r/weibo_read/comments/1imvzsg/%E6%88%91%E5%8F%AB%E5%86%9C%E6%B7%B3%E9%92%B0%E6%88%91%E5%AE%9E%E5%90%8D%E4%B8%BE%E6%8A%A5%E5%B9%BF%E8%A5%BF%E7%99%BE%E8%89%B2%E5%B8%82%E7%A5%88%E7%A6%8F%E9%AB%98%E4%B8%AD%E5%94%90%E6%AF%93%E6%96%87%E8%80%81%E5%B8%88%E5%9C%A81720%E5%B9%B4%E9%97%B4%E5%AF%B9%E6%9C%AA%E6%BB%A116%E5%B2%81%E7%9A%8417%E7%BA%A710%E7%8F%AD%E7%AC%A6%E6%9C%88%E5%8D%8E%E5%90%8C%E5%AD%A6%E9%95%BF/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button)
+
+[山西大同订婚强奸案](https://zh.wikipedia.org/wiki/%E5%B1%B1%E8%A5%BF%E5%A4%A7%E5%90%8C%E8%AE%A2%E5%A9%9A%E5%BC%BA%E5%A5%B8%E6%A1%88)
+
+[强奸女友获刑男子复合后掐死女友](https://finance.sina.com.cn/roll/2025-12-29/doc-inhentrz7768281.shtml?froms=ggmp)
+
+[王豪职场强奸案](https://news.ifeng.com/c/8pDFvzROoZv)
+
+[山东莱芜裴姓男子出租屋内持刀杀害女友](https://i.ifeng.com/c/8okx7gsmsA2)
+
+[因“拒绝结婚”,陕西西安一男子割喉杀害前女友](https://cj.sina.com.cn/articles/view/2516866423/96045577001017n1s?cre=tianyi&mod=wlocal&loc=6&r=0&rfunc=55&tj=cxvertical_wlocal&tr=1047)
 
 ## 刑事案件/其他事件
 [邯郸初中生杀人案](https://zh.wikipedia.org/wiki/%E9%82%AF%E9%83%B8%E5%88%9D%E4%B8%AD%E7%94%9F%E6%9D%80%E4%BA%BA%E6%A1%88)
