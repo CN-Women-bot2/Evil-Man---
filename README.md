@@ -121,8 +121,9 @@
 
 [港大一男生制作超700张AI色情照 涉20多名女性含老师同学 处罚仅是道歉](https://finance.sina.com.cn/jjxw/2025-07-13/doc-inffikpp7566089.shtml)
 
-[同人文海棠女作家被判十年](https://www.bbc.com/zhongwen/articles/c2e32x7lx01o/simp) 很可惜海棠事件没能找到写的好的新闻报道，写同人的太太起码99%都是女的,但报道里是只字不提。
+[同人文海棠女作家被判十年](https://www.bbc.com/zhongwen/articles/c2e32x7lx01o/simp) 
 * 都是读书上学的女孩子哪知道违法不违法的，她们从小被老师教读贾平凹、王小波，她们只是以为这是可以写的，她们以为这是文学啊，她们看到随便一个网站打开都有黄色广告、黄色视频，她们以为这是被允许的啊，不然怎么会没人抓呢？
+* [跨省抓捕海棠作者案：一次没有真正受害者的犯罪](https://chinadigitaltimes.net/chinese/719247.html)
 
 [多久？男子5年从宾馆里偷拍7.5万条视频，被判一年](https://news.qq.com/rain/a/20240930A07P9N00)
 
